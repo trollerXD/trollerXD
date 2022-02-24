@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-<p> anything on this page is not my idea, this webpage is a school proyect <p>
+<p> hi, this page is actualy an school proyect so dont take the info as a real page, perhaps this wont have any future but ill keep this. <p>
